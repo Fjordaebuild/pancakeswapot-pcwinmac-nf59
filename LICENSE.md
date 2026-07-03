@@ -1,4 +1,4 @@
-# 
+# Premium pancakeswap trading bot complementos for Mac OS | Último pancakeswap trading bot complementos for PC Windows. Featuring estrategia de reversión a la media and pools de liquidez DEX — optimized for maximum performance.
 
 
 
